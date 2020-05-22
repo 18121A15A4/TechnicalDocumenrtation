@@ -1,6 +1,6 @@
-# Harideep K
-##### +91 8886520096
-##### harideep028@gmail.com
+# Deepthi.S
+##### +91 9912360762
+##### deepthisowlam430@gmail.com
 
 ### Career Objective:
 Seeking a **challenging** *Job* to further enhance my skill set. 
